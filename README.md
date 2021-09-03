@@ -8,8 +8,9 @@ If you like me, I leave you my projects, social networks and my contact so we ca
 
 
 
-Santiago Correa 
 
-correa.exe@hotmail.com
+
+
+[Santiago Correa](https://s4coco.tumblr.com/)
 
 [Linkedin](https://www.linkedin.com/in/sacoco/)
